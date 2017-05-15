@@ -3,4 +3,4 @@
 3. After reboot into Safe Mode log in as Local Administrator
 4. Wait...
 
-P.S.: yandex.money for donate 410014935527068
+P.S.: Use this at your own risk!!! yandex.money for donate 410014935527068
